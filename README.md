@@ -58,7 +58,7 @@
 
   specifically syscourse dni, and dni if you harass ***anyone*** over ***anything***
 
-  minors iwc and under 15 dni unless VERY CLOSE
+  minors iwc and under 16 dni unless VERY CLOSE
   
 </details>
 
