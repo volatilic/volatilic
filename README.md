@@ -72,4 +72,6 @@ also irl stuff is shit and system stuff is a LOT right now, so we wont be NEARLY
 also *also*! i unfortunately may have to clarify this, but if there are any *genuine* pedophile allegations against *anyone* in our system, they are NOT true?? NONE of us are pedophiles. i apologize sincerely on the behalf of any of our system members who may have hurt anyone. the past few months have been a very complicated time for us and we may have acted very much in the wrong. but that does not excuse any problematic behavior from us. thank you for reading and PLEASE dont spread rumors just because we are proship!
 
 11/23/25
+
+and unrelated, but a LOT of people have me blocked on pt, so, for those who dont, if i ever happened to be sitting on someone or vice-versa, id love to know :3
 </details>
