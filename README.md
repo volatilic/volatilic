@@ -1,17 +1,21 @@
+![](gold.gif)
+
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=runr4bb)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3cguiatu7u5xht7775elutdnm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-(^=•ェ•=^)(^=•ェ•=^)(^=•ェ•=^)(^=•ェ•=^)
+![](divider.png)
 
 <details>
   <summary>about me</summary>
 
-  hihiee!! im davepeta, i am the host of a bpd willosys. i am NOT the creator of our system and i am NOT "pro-willo/endo". ***syscourse please dni!***
- 
-  bodily a legal adult
+  hihi! im nero!! ^_^
 
-  i use meow/meowself purrnouns and general masc terms!
+  bpd willosys host - NOT sys creator
+ 
+  agefluid, bodily 18
+
+  i use meow/meowself and he/him pronouns + masc terms
 
   catgender, fictoromantic/sexual
 
@@ -58,7 +62,9 @@
 
   specifically syscourse dni, and dni if you harass ***anyone*** over ***anything***
 
-  minors iwc and under 16 dni unless VERY CLOSE
+  minors iwc and under 16 preferably do not friend
+
+  also i know a lot of people have me blocked, so for those who dont, id like to know if i were sitting on someone, or if someone was sitting on me ^^"
   
 </details>
 
@@ -72,6 +78,4 @@ also irl stuff is shit and system stuff is a LOT right now, so we wont be NEARLY
 also *also*! i unfortunately may have to clarify this, but if there are any *genuine* pedophile allegations against *anyone* in our system, they are NOT true?? NONE of us are pedophiles. i apologize sincerely on the behalf of any of our system members who may have hurt anyone. the past few months have been a very complicated time for us and we may have acted very much in the wrong. but that does not excuse any problematic behavior from us. thank you for reading and PLEASE dont spread rumors just because we are proship!
 
 11/23/25
-
-and unrelated, but a LOT of people have me blocked on pt, so, for those who dont, if i ever happened to be sitting on someone or vice-versa, id love to know :3
 </details>
