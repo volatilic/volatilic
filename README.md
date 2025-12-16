@@ -69,7 +69,7 @@
 </details>
 
 <details> 
-<summary>byf</summary>
+<summary>important</summary>
 
 i am diagnosed with [bpd](https://bpdresources.carrd.co/). this affects every aspect of my relationships with people. we recently had an extreme bpd episode and lost a lot of friends. were still recovering. im extremely paranoid at the moment and am struggling to continue connecting with people after that. interact with EXTREME caution and avoid confrontation as much as possible. im willing to talk to and be friendly with people but im terrified of getting *too close* to anyone for the time being.
 
