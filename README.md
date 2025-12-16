@@ -19,6 +19,8 @@
 
   catgender, fictoromantic/sexual
 
+  shotacon and dark/comshipper
+
   bpd, asd, adhd, ocd, gad, cptsd
 
 </details>
