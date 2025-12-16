@@ -81,3 +81,6 @@ also *also*! i unfortunately may have to clarify this, but if there are any *gen
 
 11/23/25
 </details>
+
+![](g.gif) ![](g2.gif) <img width="95" height="95" alt="image" src="https://github.com/user-attachments/assets/4b20fa82-d5cb-4c71-bafc-c81bf62c256e" />
+
