@@ -1,12 +1,12 @@
 <sub>profile formatting may be messed up on mobile!</sub>
 
-![](gold.gif)
+![](glamfred.gif) ![](glamfred2.gif) ![](glamfred3.gif)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=runr4bb)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3cguiatu7u5xht7775elutdnm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-![](divider.png)
+![](stardivider.gif)
 
 <details>
   <summary>about me</summary>
@@ -84,5 +84,9 @@ also *also*! i unfortunately may have to clarify this, but if there are any *gen
 11/23/25
 </details>
 
-![](g.gif) ![](g2.gif) <img width="95" height="95" alt="image" src="https://github.com/user-attachments/assets/4b20fa82-d5cb-4c71-bafc-c81bf62c256e" />
+![](stardivider.gif)
+
+# my husband!!! (\*\/ω＼*)
+
+![](glamfred4.png) ![](glamfred5.png) ![](glamfred6.png) ![](glamfred7.png) ![](glamfred8.png) ![](glamfred9.png)
 
