@@ -81,12 +81,22 @@ also irl stuff is shit and system stuff is a LOT right now, so we wont be NEARLY
 
 also *also*! i unfortunately may have to clarify this, but if there are any *genuine* pedophile allegations against *anyone* in our system, they are NOT true?? NONE of us are pedophiles. i apologize sincerely on the behalf of any of our system members who may have hurt anyone. the past few months have been a very complicated time for us and we may have acted very much in the wrong. but that does not excuse any problematic behavior from us. thank you for reading and PLEASE dont spread rumors just because we are proship!
 
+***tldr: please read the carrd on bpd and educate yourself before interacting/trying to get close. we are mentally ill and quite unstable when it comes to relationships with people.***
+
 11/23/25
 </details>
 
+<details>
+  <summary>who's fronting?</summary>
+
+  im mostly writing this for friends/people who know us. as of right now, the only ones of us who are really active on pony town are myself, ***charlie (🎁, 🎂[pt only]) and nero (🐾)***. if anyone else insys finds interest in playing pony town and is frequently active, i will add them to this! but for now its only me and nero. -🎁
+  </details>
+  
 ![](stardivider.gif)
 
 # my husband!!! (\*\/ω＼*)
+
+<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/f4925d07-3faa-4918-8b3a-0fa2cd74b6f2" />
 
 ![](glamfred4.png) ![](glamfred5.png) ![](glamfred6.png) ![](glamfred7.png) ![](glamfred8.png) ![](glamfred9.png)
 
