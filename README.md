@@ -58,7 +58,7 @@
 
   anti pro-c/anti-rec harmful paras (pedos, zoos, necros etc)
 
-  anti harmful transids (transrace, transabled, transage who dont disclose bodily age)
+  anti harmful transids (transrace, transabled, transage who dont disclose bodily age etc)
 
   anti censorship
 
