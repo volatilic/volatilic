@@ -1,12 +1,12 @@
 <sub>profile formatting may be messed up on mobile!</sub>
 
-![](glamfred.gif) ![](glamfred2.gif) ![](glamfred3.gif)
+![](st1.png) ![](st2.gif) ![](st3.png)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=runr4bb)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3cguiatu7u5xht7775elutdnm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-![](stardivider.gif)
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/269a95dc-e0d3-4860-961f-a8900c383e3f" />
 
 <details>
   <summary>about me</summary>
@@ -24,6 +24,8 @@
   shotacon and dark/comshipper
 
   bpd, asd, adhd, ocd, gad, cptsd
+
+  special interest: five nights at freddys ; hyperfixation: stranger things
 
 </details>
 
@@ -84,6 +86,13 @@ also *also*! i unfortunately may have to clarify this, but if there are any *gen
 ***tldr: please read the carrd on bpd and educate yourself before interacting/trying to get close. we are mentally ill and quite unstable when it comes to relationships with people.***
 
 11/23/25
+
+---
+
+doing bad again. relapsing and extremely paranoid. friends iwec and forgive me if im distant. irl stuff is super bad atm :< ,, upset and stressed alot, minor bpd and depressive episodes. iwec
+
+1/15/26
+
 </details>
 
 <details>
@@ -92,11 +101,6 @@ also *also*! i unfortunately may have to clarify this, but if there are any *gen
   im mostly writing this for friends/people who know us. as of right now, the only ones of us who are really active on pony town are myself, ***charlie (🎁, 🎂[pt only]) and nero (🐾)***. if anyone else insys finds interest in playing pony town and is frequently active, i will add them to this! but for now its only me and nero. -🎁
   </details>
   
-![](stardivider.gif)
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/269a95dc-e0d3-4860-961f-a8900c383e3f" />
 
-# my husband!!! (\*\/ω＼*)
-
-<img width="25%" height="25%" alt="image" src="https://github.com/user-attachments/assets/f4925d07-3faa-4918-8b3a-0fa2cd74b6f2" />
-
-![](glamfred4.png) ![](glamfred5.png) ![](glamfred6.png) ![](glamfred7.png) ![](glamfred8.png) ![](glamfred9.png)
-
+![](st4.gif) ![](st5.png) ![](st6.gif)
