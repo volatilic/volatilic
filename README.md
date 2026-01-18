@@ -109,5 +109,5 @@ doing bad again. relapsing and extremely paranoid. friends iwec and forgive me i
 
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/71f8be79-e211-4499-8cf7-7706f4a72e40" />
 
-<sub> byler graphic by [@The-Forest-Syst3m](https://github.com/The-Forest-Syst3m)!!! thank yeww, much love <3 /p </sub>
+<sub> byler graphic by [@The-Forest-Syst3m](https://github.com/The-Forest-Syst3m)!!! thank yeww, much love <3 /p . art by @panasonicbf on pinterest </sub>
 
