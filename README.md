@@ -19,15 +19,15 @@
  
   agefluid, bodily 18
 
-  i use meow/meowself and he/him pronouns + masc terms
+  i use paw/pawself and he/him pronouns + masc terms
 
-  catgender, fictoromantic/sexual
+  demiboy + xenogenders, fictoromantic/sexual ONLY. i do not experience attraction to real people
 
   shotacon and dark/comshipper
 
   bpd, asd, adhd, ocd, gad, cptsd
 
-  special interest: five nights at freddys ; hyperfixation: stranger things
+  special interest: five nights at freddys ; current interest: stranger things/byler
 
 </details>
 
