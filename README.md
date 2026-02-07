@@ -96,6 +96,8 @@ nero 🐾
 
 charlie 🎁/🎂
 
+will be updated when things change 
+
   </details>
   
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/269a95dc-e0d3-4860-961f-a8900c383e3f" />
