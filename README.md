@@ -79,28 +79,23 @@
 <details> 
 <summary>important</summary>
 
-i am diagnosed with [bpd](https://bpdresources.carrd.co/). this affects every aspect of my relationships with people. we recently had an extreme bpd episode and lost a lot of friends. were still recovering. im extremely paranoid at the moment and am struggling to continue connecting with people after that. interact with EXTREME caution and avoid confrontation as much as possible. im willing to talk to and be friendly with people but im terrified of getting *too close* to anyone for the time being.
+i am diagnosed with [bpd](https://bpdresources.carrd.co/). this affects every aspect of my relationships with people. read the linked carrd and educate yourself before trying to get close. i am mentally ill and very very paranoid, jealous and selfish, and im afraid i may be manipulative. interact with caution at all times. i would say more, but this section would get too long if i did. please just read the carrd, or if youre feeling lazy, at least check out the [glossary.](https://bpdresources.carrd.co/#glossary) dont interact with me if you cant bother to read a little to understand why i may act the way i do.
 
-also irl stuff is shit and system stuff is a LOT right now, so we wont be NEARLY as active on pony town and online in general as we used to be. (used to have sup t4 and sit afk 24/7 :'3 ~~i miss my supporter~~)
+i am the host of a willogenic system, formed through [tulpamancy](https://tulpas.carrd.co/). i am NOT the system creator. i am NOT pro-endo or anti-endo. i want to stay out of "syscourse" - i dont want to get in arguments about whether im allowed to exist or not. if you are "anti-endo", just dont interact with me. i cannot stress how much i hate "syscourse" or how insulting it is. we are not a disordered system and we dont know what its like to be you, but you dont know what its like to be us, either. so dont assume.
 
-also *also*! i unfortunately may have to clarify this, but if there are any *genuine* pedophile allegations against *anyone* in our system, they are NOT true?? NONE of us are pedophiles. i apologize sincerely on the behalf of any of our system members who may have hurt anyone. the past few months have been a very complicated time for us and we may have acted very much in the wrong. but that does not excuse any problematic behavior from us. thank you for reading and PLEASE dont spread rumors just because we are proship!
-
-***tldr: please read the carrd on bpd and educate yourself before interacting/trying to get close. we are mentally ill and quite unstable when it comes to relationships with people.***
-
-11/23/25
-
----
-
-doing bad again. relapsing and extremely paranoid. friends iwec and forgive me if im distant. irl stuff is super bad atm :< ,, upset and stressed alot, minor bpd and depressive episodes. iwec
-
-1/15/26
+i am [proship](https://proshipresourcesaccessible.carrd.co/), among other things. our system is collectively profic. i am personally a darkshipper and shotacon. ill say one thing: i have never felt safer and more loved and accepted in a community than in the proship community. we arent creeps, we arent weirdos. we are people who want to enjoy tabboo fiction and have every right to do so. antis educate yourselves before interacting with me, or you give me no reason to even consider listening to you. (also please check out the linked carrd! it was made by a very awesome and respectable person and took a lot of time and effort to make!)
 
 </details>
 
 <details>
   <summary>who's fronting?</summary>
 
-  im mostly writing this for friends/people who know us. as of right now, the only ones of us who are really active on pony town are myself, ***charlie (🎁, 🎂[pt only]) and nero (🐾)***. if anyone else insys finds interest in playing pony town and is frequently active, i will add them to this! but for now its only me and nero. -🎁
+frequent fronters who are active online/on pt
+
+nero 🐾
+
+charlie 🎁/🎂
+
   </details>
   
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/269a95dc-e0d3-4860-961f-a8900c383e3f" />
