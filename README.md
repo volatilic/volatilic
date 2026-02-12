@@ -104,7 +104,19 @@ will be updated when things change
 
 ![](st4.gif) ![](st5.png) ![](st6.gif)
 
+---
+
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/71f8be79-e211-4499-8cf7-7706f4a72e40" />
 
 <sub> byler graphic by [@The-Forest-Syst3m](https://github.com/The-Forest-Syst3m)!!! thank yeww, much love <3 /p . art by @panasonicbf on pinterest </sub>
+
+---
+
+<details>
+  <summary>what is "proisland"?</summary>
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/efefbbdc-d0f1-430e-b48d-01408a471dc4" />
+
+proisland or proship island is a newly established ponytown proship area that aims to be free of drama and seperate from the already established "protree" ponytown area. dm me @runr4bb on discord to join our discord server!
+
+</details>
 
