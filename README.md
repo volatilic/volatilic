@@ -52,9 +52,9 @@
 
   pro contradictory labels
 
-  neu transid
+  pro endo/willo/tulpa
 
-  neu endo/willo/tulpa
+  neu transid
 
   neu da/irl
 
@@ -116,7 +116,9 @@ will be updated when things change
   <summary>what is "proisland"?</summary>
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/efefbbdc-d0f1-430e-b48d-01408a471dc4" />
 
-proisland or proship island is a newly established ponytown proship area that aims to be free of drama and seperate from the already established "protree" ponytown area. dm me @runr4bb on discord to join our discord server!
+proisland or proship island is a newly established ponytown proship area that aims to be an endosys-friendly space that is free of drama and seperate from the already established "protree" ponytown area. dm me @runr4bb on discord to join our discord server!
+
+<sub>2/25/26 - proisland pt area is pretty much dead, but our server is still very active!</sub>
 
 </details>
 
