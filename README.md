@@ -1,6 +1,6 @@
 <sub>profile formatting may be messed up on mobile!</sub>
 
-![](st1.png) ![](st2.gif) ![](st3.png)
+![](pink.gif) ![](pink2.gif) ![](pink3.gif)
 
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/269a95dc-e0d3-4860-961f-a8900c383e3f" />
 
@@ -99,20 +99,8 @@ charlie 🎁/🎂
 will be updated when things change 
 
   </details>
-  
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/269a95dc-e0d3-4860-961f-a8900c383e3f" />
 
-![](st4.gif) ![](st5.png) ![](st6.gif)
-
----
-
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/71f8be79-e211-4499-8cf7-7706f4a72e40" />
-
-<sub> byler graphic by [@The-Forest-Syst3m](https://github.com/The-Forest-Syst3m)!!! thank yeww, much love <3 /p . art by @panasonicbf on pinterest </sub>
-
----
-
-<details>
+  <details>
   <summary>what is "proisland"?</summary>
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/efefbbdc-d0f1-430e-b48d-01408a471dc4" />
 
@@ -121,4 +109,8 @@ proisland or proship island is a newly established ponytown proship area that ai
 <sub>2/25/26 - proisland pt area is pretty much dead, but our server is still very active!</sub>
 
 </details>
+  
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/269a95dc-e0d3-4860-961f-a8900c383e3f" />
+
+![](pink4.gif) ![](pink5.gif) ![](pink6.gif)
 
