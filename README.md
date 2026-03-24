@@ -2,7 +2,7 @@
 
 ---
 
-Dont really care about github or ponytown anymore... Were really active on tumblr! Check out our pinned post for an "about me"
+Don't really care about GitHub or Pony Town anymore... We're really active on Tumblr! Check out our pinned post for an "about me"
 
 [Tumblr](https://www.tumblr.com/runr4bb)
 
