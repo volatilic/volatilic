@@ -2,19 +2,20 @@
 
 ---
 
-Don't really care about GitHub or Pony Town anymore... We're really active on Tumblr! Check out our pinned post for an "about me"
+mostly active on [tumblr](https://www.tumblr.com/runr4bb) now
 
-[Tumblr](https://www.tumblr.com/runr4bb)
+18, proship, endosys
 
-Probably never going to redo readme :(
+we collectively go by nero, feel free to use any and all pronouns for us, but no they/them
 
-<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/48d5130f-54ef-4d00-bb6b-e3db8938d95e" />
+interact with care at all times. in a very bad mental spot. looking for supportive and kind friends
 
-[Atabook](https://volatilic.atabook.org/)
+current interest: markiplier and egos. bloodymary please dni
 
-[Strawpage](https://volatilicasks.straw.page/)
+![](conv.gif)
 
-[Callout doc](https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?tab=t.0)
+
+
 
 
 
