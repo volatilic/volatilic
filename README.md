@@ -4,7 +4,7 @@
 
 mostly active on [tumblr](https://www.tumblr.com/runr4bb) now
 
-18, proship, endosys
+19, proship, endosys
 
 we collectively go by nero, feel free to use any and all pronouns for us, but no they/them
 
