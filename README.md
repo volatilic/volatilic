@@ -12,6 +12,8 @@ interact with care at all times. in a very bad mental spot. looking for supporti
 
 current interest: markiplier and egos. bloodymary please dni
 
+please iwec if you know/recognize us from past discord servers, or if you used to know us from protree. do not bring up any past drama around us. we wish to remain as far removed from drama as possible
+
 ---
 
 ![](conv.gif)
